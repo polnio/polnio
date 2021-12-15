@@ -1,10 +1,6 @@
 ## Hi, I'm polnio, alias Po Co 👋
 
-<br />
-
 ### Today I'm a student, and I want to be a real developer nearly
-
-<br />
 
 ## I'm a coder in :
 
