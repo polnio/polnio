@@ -1,4 +1,4 @@
-## Hi, I'm polnio, alias Po Co 👋
+## Hi, I'm Po Co 👋
 
 ### Today I'm a student, and I want to be a real developer nearly
 
